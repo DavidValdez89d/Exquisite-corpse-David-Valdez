@@ -1,2 +1,3 @@
-# David first day @BeCode
-This is a fun story
+# First day at BeCode
+
+This is a fun story of the first day on BeCode
