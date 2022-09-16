@@ -20,5 +20,11 @@ If one day you ever cross its path beware of your surroundings
 
 Because after encountering it a terrible tragedy will happen near you
 
+"Beware the killer fork" they said 
+
+The bards sang of a knight set to defeat the fork
+
+But nobody knew this knight of myth would be a witcher
+
 *...Continue the story here...*
 ![Avocado](https://img.freepik.com/premium-vector/cute-avocado-character_92289-1860.jpg?w=2000)
