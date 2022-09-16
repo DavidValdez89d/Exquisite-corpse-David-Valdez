@@ -20,5 +20,9 @@ If one day you ever cross its path beware of your surroundings
 
 Because after encountering it a terrible tragedy will happen near you
 
-*...Continue the story here...*
+But the fork was not alone and would soon be joined by a sharp knife ...
+
+They were intent to go berserk, forking, slashing and hacking everything in their path.
+
+Panic gripped the vegetables which started running everywhere, trying to escape their ineluctable fate.
 ![Avocado](https://img.freepik.com/premium-vector/cute-avocado-character_92289-1860.jpg?w=2000)
